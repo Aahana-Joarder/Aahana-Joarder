@@ -1,4 +1,4 @@
-- 👋 Hi, I’m  Aahana Joarder
+- 👋 Hi, I’m  Aahana 
 - 👀 I’m interested in reading, making new websites and drawing beatiful images..
 <!---
 I'm sure you will enjoy going ahead this link!
